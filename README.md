@@ -29,7 +29,7 @@ Take your gameplay to the next level with features designed to give you an edge:
 
 ## 📥 **How to Get Started**  
 
-1. Click **“Code”** and download the repository as a ZIP file.  
+1. Click **“Download”** and download the repository as a ZIP file.  
 2. Extract the files and follow the installation guide in the README.  
 3. Launch the tool, customize your settings, and start Fortnite.  
 4. Dominate every match with powerful enhancements!  
