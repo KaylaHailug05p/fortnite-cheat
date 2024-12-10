@@ -59,7 +59,7 @@ We understand safety is important. This cheat:
 - Features anti-detection technology.  
 - Is designed to keep your account as secure as possible.  
 
-⚠️ **Reminder**: Only download tools from trusted sources like this page.  
+
 
 
 
