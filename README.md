@@ -61,14 +61,7 @@ We understand safety is important. This cheat:
 
 ⚠️ **Reminder**: Only download tools from trusted sources like this page.  
 
----
 
-## 📸 **Gallery**  
-
-<img src="https://github.com/user-attachments/assets/bd0be138-9b6f-4c3a-8655-1a8588742c7c" alt="fisch_ingame" width="800">
-<img src="https://github.com/user-attachments/assets/7331629c-0d86-4bf3-a3b3-bfc759166af9" alt="fisch_ingame" width="800">
-
----
 
 ## 🎮 **Don’t Miss Out!**  
 
